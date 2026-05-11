@@ -1,4 +1,4 @@
-
+Get the ultimate Affinity Photo for macOS action with updated Affinity Photo for macOS Action | export presets + asset management. Featuring export presets and asset management,
 
 
 
